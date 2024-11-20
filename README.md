@@ -1,1 +1,0 @@
-# kuganomura.ivy.github.io
